@@ -1,5 +1,6 @@
 Geopolitics How the West got China wrong
 西方对中国的误读（幻象？）
+
 It bet that China would head towards democracy and the market economy. The gamble has failed
 西方打赌中国会走向民主和市场经济。然而赌输了。
 
