@@ -1,11 +1,14 @@
 Geopolitics How the West got China wrong
+
 西方对中国的误读（幻象？）
 
 It bet that China would head towards democracy and the market economy. The gamble has failed
+
 西方打赌中国会走向民主和市场经济。然而赌输了。
 
 edition | Leaders
 Mar 1st 2018
+
 LAST weekend China stepped from autocracy into dictatorship. That was when Xi Jinping, already the world’s most powerful man, let it be known that he will change China’s constitution so that he can rule as president for as long as he chooses—and conceivably for life. Not since Mao Zedong has a Chinese leader wielded so much power so openly. This is not just a big change for China (see article), but also strong evidence that the West’s 25-year bet on China has failed.
 
 上周，中国由专制走向独裁。这是当习近平——已经是世界上最有权力的人——明确表示他将修改中国宪法，使得他能够按照自己的意愿统治国家，而且可以想象得到是终身制的。自毛泽东成为中国的领导人公开拥有如此大的权力以来，从来没有过的。这不仅对于中国是个巨大的改变，而且也是西方在过去25年来对中国下注失败的有力证据。
