@@ -3,10 +3,10 @@ Pollution
 Awryin the sky
 中国上空的五十度灰
  
-ATNANYAWO elementary school in Hebei province, near Beijing, the temperature in early December fell below freezing, both outside and in. The teachers took to instructing the six-year-old children in the playground. At least outside it was sunny. The classrooms were unusable because the local government had dismantled the coal-fired boilers for environmental reasons, but not yet installed a replacement heating system. There have been several such incidents this winter in
+AT NANYAWO elementary school in Hebei province, near Beijing, the temperature in early December fell below freezing, both outside and in. The teachers took to instructing the six-year-old children in the playground. At least outside it was sunny. The classrooms were unusable because the local government had dismantled the coal-fired boilers for environmental reasons, but not yet installed a replacement heating system. There have been several such incidents this winter in
 northern China. In Linfen, in neighbouring Shanxi province, villagers say their coal-fired heater shave been taken away but the pipes linking them to the gas system have not arrived. A new slogan recently appeared on walls in the town: “If you burn coal, we’ll see you in the detention centre.”
 
-靠近北京的河北省的南亚喔(音译)小学，在12月初时，无论室内还是室外的气温都降至冰点。老师们在操场上训练一些六岁的孩子。至少室外有太阳。教室已经不能用了，因为当地政府因为环境原因把烧煤的锅炉给拆了，但并没有安装可替代的供热系统。在中国的北方的这个冬天已经发生了几起这样的事件了。在临汾，隔壁山西省的一个村庄，他们的烧煤的供热装置已经被移走了，但是连接到天然气的管道还没送到。在县城里，一条新的标语写在墙上：“谁烧煤就抓谁。”
+靠近北京的河北省的南雅握小学，在12月初时，无论室内还是室外的气温都降至冰点。老师们在操场上训练一些六岁的孩子。至少室外有太阳。教室已经不能用了，因为当地政府因为环境原因把烧煤的锅炉给拆了，但并没有安装可替代的供热系统。在中国的北方的这个冬天已经发生了几起这样的事件了。在临汾，隔壁山西省的一个村庄，他们的烧煤的供热装置已经被移走了，但是连接到天然气的管道还没送到。在县城里，一条新的标语写在墙上：“谁烧煤就抓谁。”
 
 The authorities in northern China have imposed emergency restrictions until mid-March to control air pollution, which spikes during the winter. Twenty-six cities plus Beijing and Tianjin (which count as provinces) had promised to replace heating systems that run on coal with ones using electricity or gas for 3m households this year. But they failed to complete the work on time, forcing a rare U-turn: they have allowed a certain amount of coal to be burned in places without any alternative. The government has also limited the output of iron, steel and aluminium smelters, mothballed many big construction projects—leaving cranes atop unfinished sky-scrapers motionless against cornflower skies—and, in Beijing and its surroundings, created a new Environmental Protection Agency, with tough enforcement powers.
 
